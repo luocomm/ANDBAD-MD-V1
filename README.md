@@ -1,19 +1,19 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-<p align="center">                                              𝗔𝗡𝗗𝗕𝗔𝗗-𝐌𝐃-𝐕1 
+<p align="center">                                              USENGE TU
 
 
 </p>
 <p align="center"> 
   <a href="https://whatsapp.com/channel/0029VajQn6YF1YlPE0XgBC2m">
-    <img alt=Support height="390" src="https://telegra.ph/file/7a6d5de6adcf7afd62620.jpg"> 
+    <img alt=Support height="390" src="(https://telegra.ph/file/3109785e34b49e117cac4.png)"> 
     </p>
  
  
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=THIS+IS+ANDBAD-MD+MADE+IN+TANZANIA+🇹🇿♥️🇹🇿" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=THIS+IS+USENGE-MD+MADE+IN+USENGE+🇹🇿♥️🇹🇿" alt="Typing SVG" /></a>
 
 
 
